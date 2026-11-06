@@ -1,16 +1,23 @@
-## Hi there 👋
+# "the damage is already done, take any regrets to your grave"
 
-<!--
-**mozzarellafries/mozzarellafries** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-- Irl Brighteyes, Blue, Azure, & Rosemary walten. Feel free to use nicknames idm||Taken, I love my bf( https://github.com/0fficer-sanchez )||🫂 Friendlover, I love all my friends --
 
-Here are some ideas to get you started:
+--🟢 online, feel free to chat, or hang out
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+--🌙 afk 
+
+--⛔ Don't feel like talking
+
+---------------------------------------
+
+--DNI--
+
+►Darkshippers & Proshippers
+
+►Maga and anyone right wing
+
+►13 & younger
+
+--Fandoms--
+
+►Dickfigures, BlockTales, Roblox admins, Eddsworld, Forsaken, Sfoth, and twf. (For more info abt fandoms and ships visit my sp)
