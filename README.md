@@ -20,4 +20,4 @@
 
 --Fandoms--
 
-►Dickfigures, BlockTales, Roblox admins, Eddsworld, Forsaken, Sfoth, and twf. (For more info abt fandoms and ships visit my sp)
+►Dickfigures, BlockTales, Roblox admins, Eddsworld, and sfoth. (For more info abt fandoms and ships visit my sp)
