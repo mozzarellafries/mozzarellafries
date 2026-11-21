@@ -1,7 +1,7 @@
 # "the damage is already done, take any regrets to your grave"
 
 -- Irl Azure, feel free to use nicknames idm|| I don't do rp ||Taken, I love my bf!!
-(https://github.com/0fficer-sanchez)|| Friendlover, I love all my friends --
+https://github.com/0fficer-sanchez || Friendlover, I love all my friends --
 
 --🟢 online, feel free to chat, or hang out
 
